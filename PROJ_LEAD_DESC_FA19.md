@@ -31,9 +31,9 @@ as to receive feedback and guidance from them on our projects as well as keep QU
 
 ## Interested?
 
-If you feel this is a roll you could excel in then fill out [this form]() and we will be in touch!
+If you feel this is a roll you could excel in then fill out [this form](https://forms.gle/UAKsdenbNKrtbiZ77) and we will be in touch!
 
-Even if you don't think you would make a great fit to lead the team--we would love to have you on board to help,
+Even if you don't think you would make a great fit to lead the team--we would love to have you on board to help
 in any capacity you would like! Though the projects lead provides the direction for the team, we still need
 enthusiastic and knowledgable students that want to come up with innovative project ideas, collaborate with their
 peers, and facilitate our meetings!
