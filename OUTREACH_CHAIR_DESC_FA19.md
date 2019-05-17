@@ -16,4 +16,8 @@ offer high visibility to those in the QIS field.
 
 ## Interested?
 
-If you feel this is a roll you would excel in, then fill out the form here
+If you feel this is a roll you would excel in, then fill out the [form](https://forms.gle/RxQRBGtCDLsiobo6A)!
+
+## Questions?
+
+Get in touch at info@quiuc.org!
