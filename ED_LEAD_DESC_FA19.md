@@ -40,3 +40,7 @@ Even if you don't think you would make a great fit to lead the team--we would lo
 in any capacity you would like! Though the education lead provides the direction for the team, we still need 
 enthusiastic and knowledgable students that want to build educational materials, provide support, and teach 
 during workshops!
+
+## Questions?
+
+Get in touch at info@quiuc.org!
