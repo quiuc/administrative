@@ -39,4 +39,4 @@ in any capacity you would like! Though the education lead provides the direction
 enthusiastic and knowledgable students that want to build educational materials, provide support, and teach 
 during workshops!
 
-However, if you think you would make a great fit then fill out this form and we will be in touch!
+However, if you think you would make a great fit then fill out [this form](https://forms.gle/6meSgLB2f9VDAWaA6) and we will be in touch!
